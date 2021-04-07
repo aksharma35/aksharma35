@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Ankush Sharma. I am a computer science student who wants to learns about every field of life.
+- 👀 I’m interested in learning new technologies,Listening music,Mountaineering and many more.
+- 🌱 I’m currently learning data science and and ios development.
+- 🥷🏻  I want to learn musical instruments(Flute),Djing,Bug bounty hunting(penetration testing), Stock Marketing,Modeling,Real Estate.
